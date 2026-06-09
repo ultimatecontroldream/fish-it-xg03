@@ -1,4 +1,4 @@
-#  
+#  fish it exclusive Script is the best fish it Script, featuring no clip and one-hit kill. Safe and powerful for all your needs.
 
 
 
